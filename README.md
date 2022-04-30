@@ -1,4 +1,6 @@
 ### Hi there 👋
+https://velog.io/@peaq12
+https://blog.naver.com/rlawjdgus051
 
 <!--
 **jeonghyun051/jeonghyun051** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
