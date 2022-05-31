@@ -1,5 +1,5 @@
 ### Hi there 👋
-https://velog.io/@peaq12
+https://kkimjeong.tistory.com/
 
 https://blog.naver.com/rlawjdgus051
 
